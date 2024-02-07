@@ -36,3 +36,6 @@ Feel free to reach out with any inquiries, feedback, or collaboration opportunit
 Thank you for visiting Dance-Me-Taaz! We hope you enjoy your journey through the world of dance. Keep dancing, keep exploring, and keep spreading joy through movement.
 
 ## Happy Dancing! 🩰💃🕺
+
+
+
